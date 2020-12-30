@@ -1,0 +1,1 @@
+Автор курса и видео: https://logic.pdmi.ras.ru/~sergey/teaching/mlhse2020.html?fbclid=IwAR3TR0HqOg1ALN6G85ZIYZvstpRLxNEOaZ8gibcQc14PZN8Ho1vF5dw0Vy0
